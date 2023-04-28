@@ -1,1 +1,1 @@
-will be updated soom
+will be updated soon
